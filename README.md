@@ -1,4 +1,4 @@
-Hi! I’m Anthony Gunadi, the composer of Titan. The Ableton project file includes the electronic track, click track, and effects automation. The score is included in the zip folder. Thank you for your interest in performing this piece!
+Hi! I’m Anthony Gunadi, the composer of Titan. The Ableton project file includes the electronic track, click track, and effects automation. The score is included in the folder too. Thank you for your interest in performing this piece!
 
 IMPORTANT: If you have any questions or need assistance, do not hesitate to email me at anth.gunadi@gmail.com. I would also be happy to listen in on a rehearsal, help promote your performance, and possibly attend in person!
 
